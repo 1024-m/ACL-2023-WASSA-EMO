@@ -1,4 +1,7 @@
 # ACL-2023-WASSA-TASK-3
+
+Finished 1st out of 70 teams , will be back in 2024 :)
+
 paper link :- https://aclanthology.org/2023.wassa-1.46.pdf
 questions ? :- www.rkadiyala.com
 
