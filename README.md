@@ -3,7 +3,7 @@
 Finished 1st out of 121 teams , will be back in 2024 :)
 
 paper link :- https://aclanthology.org/2023.wassa-1.46.pdf
-questions ? :- www.rkadiyala.com
+questions ? :- www.rkadiyala.com (form at bottom)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=500&pause=3000&random=false&width=435&height=32&lines=%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B;%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B;%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B)](https://www.rkadiyala.com)     
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=500&pause=3000&random=false&width=435&height=32&lines=%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%F0%9F%9F%A8%F0%9F%9F%A8%F0%9F%9F%A8%F0%9F%9F%A8%F0%9F%9F%A8%F0%9F%9F%A8%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B;%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%F0%9F%9F%A8%F0%9F%9F%A8%F0%9F%9F%A8%F0%9F%9F%A8%F0%9F%9F%A8%F0%9F%9F%A8%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B;%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%F0%9F%9F%A8%F0%9F%9F%A8%F0%9F%9F%A8%F0%9F%9F%A8%F0%9F%9F%A8%F0%9F%9F%A8%E2%AC%9B%EF%B8%8F%E2%AC%9B%EF%B8%8F%E2%AC%9B)](https://www.rkadiyala.com)       
